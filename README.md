@@ -1,3 +1,2 @@
-# Astolfo-Client-Cracked
-Astolfo but free! https://astolfo.lgbt/ $40 client for free? Poggers deibos. Made by only me this time, I got bored and wanted to do some hypixel hacking so someone gave me astolfo client's jar then i just deobfuscated it and cracked it, This took like 2 months to do with hard work. No chance theres gonna be more updates to this crack as astolfo clients owner will prob take this shit down........
-This is a forge mod, I only got the forge mod to work and not the fukin launcher! Oh no. This isnt ratted.
+ok plz stfu this was a joke repo meant to make people download it, its a renamed lb. Don't harass me about my Flux Crack or this crack cuz they r jokes
+and not meant to be takin seriously. Please note DO NOT FUCKING DOWNLOAD CRACKS FOR CLIENTS!
